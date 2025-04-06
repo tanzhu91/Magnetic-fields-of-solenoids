@@ -18,3 +18,4 @@ You can view and download the PDF from the following link:
 ![Screenshot 2025-04-06 at 21-23-46 Magnetic fields of solenoids pdf](https://github.com/user-attachments/assets/84a1d304-ac35-4622-8873-45e4a77bf225)
 ![Screenshot 2025-04-06 at 21-33-00 Magnetic fields of solenoids pdf](https://github.com/user-attachments/assets/ea0a8759-972b-4679-bcdf-d71e571a0685)
 
+![Screenshot 2025-04-06 at 21-26-072 Magnetic fields of solenoids pdf](https://github.com/user-attachments/assets/218247d4-58bb-4ccb-9c8b-65e12b2d41e7)
